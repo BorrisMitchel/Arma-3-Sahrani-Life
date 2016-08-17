@@ -10,3 +10,5 @@ https://github.com/TAWTonic/Altis-Life
 
 This mission was modified by
 http://worldwidegaming.eu/
+
+@BarackObamaCare & @Borrismitchel
